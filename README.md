@@ -56,7 +56,5 @@ Software Engineering Student
 
 ## 📬 Contact
 
-📧 Email: samawash.mardan19@gmail.com
-
 🔗 LinkedIn:
 https://www.linkedin.com/in/samawash-mardan-0977213a8
